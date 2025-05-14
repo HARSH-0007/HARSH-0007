@@ -12,7 +12,7 @@
 - 💞️ Open to collaborate on beginner-to-intermediate level **AI/ML** projects.
 - 📫 Reach me here:
   - [Email](harshbhavsar00070@gmail.com)
-  - [LinkedIn](wait for it)
+  - [LinkedIn](https://www.linkedin.com/in/harsh-bhavsar-443b2a365/)
   - [GitHub Projects](wait for it)
 
 - 😄 Pronouns: He/Him
